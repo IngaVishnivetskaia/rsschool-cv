@@ -6,7 +6,7 @@ _phone: +7(911)9327739_
 I have a clear, logical mind with a practical approach to problem-solving and a drive to see things through to completion. I have more than 14 years of experience in managing and leading international teams. I am eager to learn and enjoy overcoming challenges. I have strong interpersonal skills, enabling me to interact with a wide range of people. I am eager to be challenged in order to grow and further improve my IT skills in the field of Front end development.
 
 **Education:**
-2002-2008:
+_2002-2008:_
 Russian State Institute of Performing Arts, Department of Creative Producing for Performing Arts
 
 **Work experience**
