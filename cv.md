@@ -10,7 +10,7 @@ I have a clear, logical mind with a practical approach to problem-solving and a 
 Russian State Institute of Performing Arts, Department of Creative Producing for Performing Arts
 
 **Work experience**
-2006-present: International Manager (State Musical Comedy Theatre, St.Petersburg), primary goals:
+_2006-present:_ International Manager (State Musical Comedy Theatre, St.Petersburg), primary goals:
 - implementation of international projects in collaboration with cultural institutions and outstanding creative teams from abroad;
 - obtaining of licenses for new productions;
 - international projects' coordination;
@@ -18,13 +18,13 @@ Russian State Institute of Performing Arts, Department of Creative Producing for
 - fundraising (applying for grants from foreign funds);
 - participation in competitions for state subsidies;
 
-2009-present: executive assistant to CEO (LLC "La Valse", Dresden Opera ball in St.Petersburg), primary goals:
+_2009-present:_ executive assistant to CEO (LLC "La Valse", Dresden Opera ball in St.Petersburg), primary goals:
 - coordination of the company's work with the German head office;
 - translation of key negotiations (founders and CEO);
 - preparing financial forecasts for the Russian office branch;
 - conducting official correspondence with the state authorities of the St.Petersburg city;
 
-2020-present: head of SAE Fund for support of development of projects in the field of culture "Bridge of Arts-Neva".
+_2020-present:_ head of SAE Fund for support of development of projects in the field of culture "Bridge of Arts-Neva".
 
 **Language skills**
 fluent English (permanent work in English since 2006) including conducting of international negotiations, meetings, business correspondence, translation of literary texts, consecutive interpretation.
